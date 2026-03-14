@@ -16,4 +16,4 @@ DNI: Sark supporters, Trump supporters, racist, mean/toxic ppl, etc. dni please.
 
 Thanks for reading this!!
 
-
+![Image](https://github.com/user-attachments/assets/2755863e-9743-402c-bfe9-6568caf84300)
