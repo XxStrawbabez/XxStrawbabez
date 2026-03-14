@@ -1,5 +1,4 @@
-![Image](https://github.com/user-attachments/assets/eb28f893-399b-4915-8088-76bc94bc00fe)
-![Image](https://github.com/user-attachments/assets/2e6362b8-1776-4a1f-b70d-af0f377e9b8b)
+
 
 ◟✦. Hii!! You can call me Veronia or Vero, nice to meet you!! you can find me sitting with my waifu, mooties or friends ❤️
 
@@ -17,4 +16,4 @@ DNI: Sark supporters, Trump supporters, racist, mean/toxic ppl, etc. dni please.
 
 Thanks for reading this!!
 
-![Image](https://github.com/user-attachments/assets/95c1fb29-cad4-410c-9fbe-a687b830b69b)
+
