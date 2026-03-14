@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/5c46793d-5963-4d7a-b162-e9f36fcf5083)
+![Image](https://github.com/user-attachments/assets/58de0ca5-5444-4140-b116-7460506b3a21)
 
 ◟✦. Hii!! You can call me Veronia or Vero, nice to meet you!! you can find me sitting with my waifu, mooties or friends ❤️
 
